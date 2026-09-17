@@ -1,3 +1,3 @@
-You give the hands that you will take.
+Give the hands you will receive.
 
 - WEB4.
